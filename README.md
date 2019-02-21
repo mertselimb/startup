@@ -1,1 +1,1 @@
-Up at : https://mertselimb.me/startup/
+Up at : https://mertselimb.github.io/startup/
